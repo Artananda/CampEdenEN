@@ -8,6 +8,7 @@ Ebook {
     Part {
         src: "cover.md"
         name: "Cover"
+        pdfOnly: true
     }
     Part {
         src: "first.md"
