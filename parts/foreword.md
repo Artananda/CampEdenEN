@@ -3,7 +3,7 @@ First of all, this is a NO-BUDGET-Project. Please excuse my English. I did not f
 
 If you don't like to read books with failures, then it's might not be for you. Give it to someone else instead of complaining. Complaining does not help you and it does not help me.
 
-But if you find this book kind of valuable, then I invite you to create a recession at Amazon and leave a few stars for the rating, that helps other people to find my book and it helps me to survive and wright more book. 
+But if you find this book kind of valuable, then I invite you to create a recession at Amazon and leave a few stars for the rating, that helps other people to find my book and it helps me to survive and write more books. 
 
 When I transformed myself back into a human being 5 years ago after a burnout, I discovered what was so unnatural about me. I tended to want to change the world. Yoga and Tantra have helped me clean up my inner life and not always blaming it for anything outside.  
 Today I think I have found myself and know that we are able to recreate paradise for ourselves. I even had the luck to learn this in the middle of Berlin, which, however, was linked to a relationship with a great woman. You know, pink glasses, hormones and stuff.  

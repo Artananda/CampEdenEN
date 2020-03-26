@@ -9,5 +9,5 @@ I offer you this book in the spirit of the gift. This book is licensed under the
 The feature of gifts is that the counter present is not fixed in advance. If you receive or distribute this book for free, I welcome a volunteer gift that expresses the gratitude or appreciation you may feel. You can also do that through the following website.  
 A large part of my knowledge in this book, I have also gotten from somewhere and give it hereby to you.
 
-Web: 		[artananda.github.io/web](artananda.github.io/web)  
-Facebook: 	[facebook.com/artanidos](facebook.com/artanidos)
+Web: 		[https://artananda.github.io/web](https://artananda.github.io/web)  
+Facebook: 	[https://facebook.com/artanidos](https://facebook.com/artanidos)

@@ -7,7 +7,7 @@
 
 If you feel that you like to help me to keep on doing that, I am accepting donations and any kind of help. 
 
-You can help in many ways. You can find my videos on Youtube here 
+You can help in many ways. You can find my videos on Youtube here  
 [https://www.youtube.com/user/RIAMSSoftware](https://www.youtube.com/user/RIAMSSoftware)   
 and if you like them, then please **like** them and abo my channel:
 
@@ -15,7 +15,7 @@ You can find my software here
 [https://github.com/Artanidos](https://github.com/Artanidos)   
 and you might use it and want me to improve it. Just text me and I will see what I can do.
 
-You can also find my products here at CrowdWare:
+You can also find my products here at CrowdWare:  
 [https://crowdware.github.io/web](https://crowdware.github.io/web)
 
 You can find my books here  
@@ -32,5 +32,6 @@ Owner: Olaf Japp
 IBAN: BE14 9740 5329 8883  
 BIC: PESOBEB1
 
-If you have questions do not hesitate to contact me at [artanidos@gmail.com](mailto:artanidos@gmail.com).  
+If you have questions do not hesitate to contact me at  
+[artanidos@gmail.com](mailto:artanidos@gmail.com).  
 I will be happy to help you.

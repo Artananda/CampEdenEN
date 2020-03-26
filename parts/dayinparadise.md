@@ -1,6 +1,6 @@
 #A normal day in paradies
 ![Sunrays](../images/sunray.jpg)
-A warm sunbeam shining through the window in our tiny house lights up my eyelids as I wake up in the morning. "Nice," I think, "That's how I like being woken up." After stretching myself, I smell the wonderful taste of freshly baked bread and coffee. I hear sounds from the kitchen and see who is working so early. "Good morning my darling", I say, after I discovered my soul-mate.  
+A warm sunbeam shining through the window in our dome house lights up my eyelids as I wake up in the morning. "Nice," I think, "That's how I like being woken up." After stretching myself, I smell the wonderful taste of freshly baked bread and coffee. I hear sounds from the kitchen and see who is working so early. "Good morning my darling", I say, after I discovered my soul-mate.  
   
 "Slept well?", she replies. "Would ya like some coffee and freshly baked bread?" 
   
